@@ -89,6 +89,8 @@ Don't let your favorite digital media disappear from the internet. Secure your c
 
 > 💳 **Contact us to get your copy | One-time payment with NO monthly or annual subscriptions | Price: $25**
 > 
-> 🌐 [SoraMatrix Facebook Page](https://www.facebook.com/SoraMatrixCompany)  
+> 🌐 [SoraMatrix Facebook Page](https://www.facebook.com/SoraMatrixCompany)
 > 
-> 📧 [ahmedantar.office@gmail.com](mailto:ahmedantar.office@gmail.com)
+> 🌐 https://aboantar.gumroad.com/l/pnzfua
+> 
+> 🌐 [ahmedantar.office@gmail.com](mailto:ahmedantar.office@gmail.com)
